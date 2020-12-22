@@ -1,0 +1,1 @@
+# ACNL-Rich-town
